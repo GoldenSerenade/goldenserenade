@@ -1,6 +1,6 @@
 # goldenserenade
 
- Apollo | Adult 20s | they/them
+ Apollo | 20s | they/them
 
 ![This is an alt text.](tumblr_363c5089eafc3a9674e333a230d53b52_eeb1eaa6_540.gif "This is a sample image.") 
 
