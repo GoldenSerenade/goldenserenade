@@ -16,8 +16,7 @@ please do not come up to me and immediately rp with me I get overwhelmed easily 
 
 __Shipping__
 
-1. I am a multishipper
-  i. do not force ships on me. **That would be an imediate block**
+1. I am a multishipper! **Do not** force ships on me. **That would be an imediate block**
 3. I don't mind most ships just please don't be weird or annoying about it
 
 __RP__
