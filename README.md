@@ -36,4 +36,7 @@ This is mostly if we talk off PT, do not @ me in discord DMs I don't look at my 
 
  [Please read my Straw.Page for more!](https://arrowofdodona.straw.page/).
 
+ [Carrd for even more I guess!](https://goldenserenade.crd.co/)
+
+
  **I have no idea how to make this pretty so take it how it is. I had a lot of anxiety and stress making it**
