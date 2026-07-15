@@ -5,6 +5,7 @@
 ![This is an alt text.](tumblr_363c5089eafc3a9674e333a230d53b52_eeb1eaa6_540.gif "This is a sample image.") 
 
 # Please do not take inspo or copy my skins
+# and please don't call my skins ugly i work hard on them. I dont like overly detailed designs. that is not me. If you do this I WILL block you.
 
 They may not be god tier but I still love them all the same and I work really hard on them. 
 
